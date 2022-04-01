@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ghurob2
-- 👀 I’m interested in Hijrah and others thing about web developement also perl
+- 👀 I’m interested in web developement also perl
 - 🌱 I’m currently learning to get out from current live style
 - 💞️ I’m looking to collaborate on everything I know about it
 - 📫 I'm still in this earth name as Github and Gmail(profile name at gmail) to reach Me 
